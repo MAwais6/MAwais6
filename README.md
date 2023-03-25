@@ -6,7 +6,7 @@
 - 🌱 Freelance Work 
 - 👯 Open to collaborate with other developers
 - 🥅 2023 Goals: Learn more about artificial intelligence
-- ⚡ Fun fact: I love to play table tennis on weekends.
+- ⚡ Fun fact: I love to watch movies on weekends.
 - 📫 Connect with me on linkedIn:: https://www.linkedin.com/in/muhammad-awais-5b4170237/
 
 
